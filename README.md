@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mikeymartinez2175
+- 👀 I’m interested in the tech world overall. 
+- 🌱 I’m currently learning cybersecurity.
+- 💞️ I’m looking to collaborate with aspiring individuals as well as established veterans in order to further my knowledge in an unfamiliar field. 
+- 📫 Call me, beep me, if you want to reach me - p: 1(615)5193642
